@@ -1,2 +1,3 @@
 # CSE_Lab_BUBT
-Amra shuvo bhai er vokto
+NO RISK 
+  NO STORY
